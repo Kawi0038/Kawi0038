@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on **on nothing 🤯**
 
-- 📫 How to reach me **add my discord Kawi#0107**
+- 📫 How to reach me **add my discord Kawi#0742**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
