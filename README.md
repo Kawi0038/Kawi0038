@@ -1,6 +1,4 @@
 ![alt text](https://cdn.discordapp.com/attachments/902283820127113296/934253965510606858/Unbenannt-1.png)
-
-
 <h3 align="center">Hello, I'm Kawi🐍</h3>
 
 - 🔭 I’m currently working on **on nothing 🤯**
